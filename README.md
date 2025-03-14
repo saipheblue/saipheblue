@@ -1,1 +1,1 @@
-![dino](https://media1.tenor.com/m/DN3OugqNFjcAAAAd/google-dino.gif)
+![suppalex](https://www.retropelit.fi/wp-content/uploads/2011/10/Supaplex-Alku-animaatio.gif)
