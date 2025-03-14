@@ -1,1 +1,1 @@
-![Dino GIF](https://github.com/saipheblue/saipheblue/blob/main/dino.gif?raw=true)
+![dino](https://media1.tenor.com/m/DN3OugqNFjcAAAAd/google-dino.gif)
