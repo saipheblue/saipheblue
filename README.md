@@ -1,1 +1,1 @@
-![Dino GIF](https://github.com/saadeghi/saadeghi/blob/master/dino.gif?raw=true)
+![Dino GIF](dino.gif)
