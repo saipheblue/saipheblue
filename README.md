@@ -1,1 +1,1 @@
-![suppalex](https://www.retropelit.fi/wp-content/uploads/2011/10/Supaplex-Alku-animaatio.gif)
+![suppalex](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExNm0yYTVhbzQwbjFvam5idG41cHcyMTg3MG9hb3hyZTM2dDlheGNrYSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3og0ItSBWLXsKA6FTW/giphy.gif)
